@@ -1,1 +1,1 @@
-I lern webbuilding sooo feel free to give advice and Branches
+I'm learning web development! Feel free to share advice and suggest improvements. 🚀
